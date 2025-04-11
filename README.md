@@ -61,8 +61,3 @@ If everything works, **you’re welcome.** If it doesn’t, **stackoverflow.com 
 ---
 
 🎉 **Enjoy backendddd! (Or don’t. We don’t control your life.)** 😎🔥  
-```
-
----
-
-😂🔥 Hope this one hits the right balance of sarcasm and actual information. Lemme know if you want to **crank it up even more** or **tone it down for the weak-hearted!** 😆
